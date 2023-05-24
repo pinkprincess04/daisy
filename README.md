@@ -4,6 +4,8 @@
 
 ***
 
+![image]https://namu.wiki/jump/dmx9n%2F3R%2F%2Fuvi612MirzjVGqT4U6DiASuMjPeEKeUFVINAId821jntrYe5bKOIjQjJLqeld8m%2BhhFfZrw3iW3w%3D%3D
+
 #### + **top 명령어**
 
 ##### + 시스템의 실시간 프로세스 모니터링 도구
