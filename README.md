@@ -4,7 +4,7 @@
 
 ***
 
-![image]https://namu.wiki/jump/dmx9n%2F3R%2F%2Fuvi612MirzjVGqT4U6DiASuMjPeEKeUFVINAId821jntrYe5bKOIjQjJLqeld8m%2BhhFfZrw3iW3w%3D%3D
+!https://namu.wiki/jump/dmx9n%2F3R%2F%2Fuvi612MirzjVGqT4U6DiASuMjPeEKeUFVINAId821jntrYe5bKOIjQjJLqeld8m%2BhhFfZrw3iW3w%3D%3D
 
 #### + **top 명령어**
 
